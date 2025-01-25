@@ -1,3 +1,9 @@
+SOLPOT SCRIPT 
+
+Sign-up:- https://solpot.com/r/duziniebqr
+
+code :- ```duziniebqr```
+
 OWNER:- FORESTARMY
 
 GitHub - ytforestarmy
